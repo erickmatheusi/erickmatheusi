@@ -12,4 +12,4 @@ erickgarcia.sousa@gmail.com
 
 @erick.mtgs
 
-![](https://media1.tenor.com/m/It_uScpL9TQAAAAd/yurialberto.gif)
+![](https://media1.tenor.com/m/MdAQumcvTBsAAAAd/yuri-alberto-yuri.gif)
